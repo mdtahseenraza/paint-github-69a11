@@ -1,4 +1,2 @@
-#HIT
-Total
 <??has%perrate
 ?>
