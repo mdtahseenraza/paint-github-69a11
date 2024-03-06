@@ -1,1 +1,4 @@
-# pro
+#HIT
+Total
+<??has%perrate
+?>
